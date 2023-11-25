@@ -1,0 +1,1 @@
+# veri_yapilari_1_odev_2023
